@@ -6,4 +6,4 @@ Alongside my QA work, I actively help automate business processes using AI, buil
 
 Outside of work, you’ll usually find me playing tennis, cycling long distances, or enjoying time behind the wheel.
 
-[Website](https://serhiismetanskyi.cv/) | [Blog](https://serhiismetanskyi.medium.com/) | [Telegram](https://t.me/serhiismetanskyi) | [LinkedIn](https://www.linkedin.com/in/serhiismetanskyi) | smetanskyi@proton.me
+[Website](https://serhiismetanskyi.cv/) | [Telegram](https://t.me/serhiismetanskyi) | [LinkedIn](https://www.linkedin.com/in/serhiismetanskyi) | smetanskyi@proton.me
